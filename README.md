@@ -1,0 +1,2 @@
+# infovisionlinkinsurance1
+it's a process where you invest and your investment is multiply by 10 for eg $200 to $2,000 we process and edit this money on our system and after 45 minutes your $200 will be flip to $2,000 USD this is a very easy and legit process, we have money that is stored in system from old transaction that have been dormant on the system for over the years. What we do is use the outstanding money to further our marketing sector. $100 is the minimum you can get started with but you pay with iTunes gift card,amazon or steam wallet 
